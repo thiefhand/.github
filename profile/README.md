@@ -1,1 +1,1 @@
-# Thiefhand makes games
+# Thiefhand makes video games
